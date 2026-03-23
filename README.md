@@ -1,4 +1,4 @@
-# Neru – ロストワンの号哭 (2025 New Recording)
+# Neru – ロストワンの号哭 (2025 New Recording) - Lost One's Weeping (2025 New Recording)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
